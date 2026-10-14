@@ -220,4 +220,4 @@ Batman: Arkham Asylum is offered as a full free version, providing all features 
 Get ready to don the cape and cowl! Download Batman: Arkham Asylum today and experience the thrill of being Gotham's hero.
 
 ---
-**Last updated:** 2026-10-14 19:52:31 UTC
+**Last updated:** 2026-10-14 22:53:16 UTC
